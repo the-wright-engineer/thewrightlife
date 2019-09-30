@@ -43,6 +43,4 @@ fields:
   config:
     required: true
 pages:
-- content/posts/working-from-home.md
 - content/posts/photography.md
-- content/posts/nature.md
