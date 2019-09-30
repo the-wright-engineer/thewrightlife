@@ -25,5 +25,4 @@ fields:
   config:
     required: true
 pages:
-- content/style-guide.md
 - content/about.md
