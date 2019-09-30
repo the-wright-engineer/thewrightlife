@@ -5,9 +5,9 @@ date: '2018-09-25'
 thumb_img_path: images/baby-feet.jpg
 content_img_path: images/baby-feet.jpg
 excerpt: >-
-	Yep. You heard that right! Baby Wright
-	(or as we have affectionately named him/her Baby Squishy)
-	is due to arrive in March.
+  Yep. You heard that right! Baby Wright
+  (or as we have affectionately named him/her Baby Squishy)
+  is due to arrive in March.
 layout: post
 ---
 
