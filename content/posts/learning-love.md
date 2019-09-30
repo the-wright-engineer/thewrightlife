@@ -1,7 +1,7 @@
 ---
 title: Learning to Love Different
 date: '2018-06-02'
-thumb_img_path: images/baseballe-us.jpg
+thumb_img_path: images/baseball-us.jpg
 content_img_path: images/baseball-us.jpg
 layout: post
 ---
