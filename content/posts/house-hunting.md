@@ -1,6 +1,6 @@
 ---
 title: House Hunting
-subtitle: House Hunting in Boston: Wicked Stressful
+subtitle: House Hunting in Boston is Wicked Stressful
 date: '2018-03-19'
 thumb_img_path: images/house-hunting.jpg
 content_img_path: images/house-hunting.jpg
