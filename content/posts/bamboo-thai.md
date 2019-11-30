@@ -14,7 +14,7 @@ layout: post
 
 Featured Meal 1: Crispy Pad Thai consisting of crispy egg noodle stir fry with chicken and shrimp, egg, turnip, scallions, bean sprouts and peanuts.
 
-Featured Meal 2: Curry Chicken Noodle Soup w/ Tofu, Chinese Broccoli, Bean Sprouts, Cilantro Turnip in Mild Curry Broth w/ Fried Onions...add A TRUCKLOAD of red pepper and you have a DELICIOUS MEAL *obviously Haley ordered this dish*![Haley's Dish](/images/blog/2018-03/haley-thai-dish.jpg)
+Featured Meal 2: Curry Chicken Noodle Soup w/ Tofu, Chinese Broccoli, Bean Sprouts, Cilantro Turnip in Mild Curry Broth w/ Fried Onions...add A TRUCKLOAD of red pepper and you have a DELICIOUS MEAL *obviously Haley ordered this dish*![Haley's Dish](/images/haley-thai-dish.jpg)
 
 Website: https://www.bambooboston.com
 Located at: 1616 Commonwealth Avenue, Brighton MA 02135
