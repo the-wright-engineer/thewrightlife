@@ -20,7 +20,7 @@ Hope restored.
 
 **But**. The doctor said "the baby is alive now, but there is still bleeding, the baby may not make it. You have a 50% chance." 
 
-50%. That sounded like a decent chance until it was the probability of your life. I could feel the wave of fear rising and there it was again, ever faithful: "release it, release your fear." 
+50%. That sounded like a decent chance until it was the probability of your life. I could feel the wave of fear rising and there it was again, ever faithful: "Release it, Release your fear." 
 
 He sustained your life, the Creator did, by the very Word of His power. 
 
