@@ -34,7 +34,7 @@ You and I were inseparable. Just when I thought we were getting the hang of this
 
 We sat together on the couch and you were crying again, telling me you were hungry, and I was crying too, trying to get you to eat. I felt despair and failure and tense. so tense. And His presence swept over me. "Release it. Release your pride." and I did. Over and over and over again. 
 
-God settled your stomach and helped you eat and you grew. You got a small little roll on your wrist and we celebrated like we won the lottery. Your crying lessened and your sleep...well that still didn't change but we had come to terms with that. 
+God settled your stomach and helped you eat and you grew. You got a small little roll on your wrist and we celebrated like we won the lottery. Your crying lessened and your sleep...well that still didn't change much but we had come to terms with that. 
 
 And then, somehow, seemingly overnight you began crawling and walking, laughing and kissing. You play and giggle and give out the best smiles free of charge. 
 
