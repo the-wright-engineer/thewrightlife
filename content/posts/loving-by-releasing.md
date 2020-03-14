@@ -18,6 +18,8 @@ After a long night in the ER and an assumed miscarriage the ultrasound tech somb
 
 Hope restored. 
 
-**But**. The doctor said "the baby is alive now, but there is still bleeding, the baby may not make it. You have a 50% chance. 
+**But**. The doctor said "the baby is alive now, but there is still bleeding, the baby may not make it. You have a 50% chance." 
 
-50%. That sounds like a decent chance until it was my the probability of my babies life. And just as my fear was rising there it was again, ever faithful: "release, release your fear." 
+50%. That sounds like a decent chance until it was my the probability of my babies life. I could feel the wave of fear rising and there it was again, ever faithful: "release, release your fear." 
+
+He sustained your life, the Creator did by the 
