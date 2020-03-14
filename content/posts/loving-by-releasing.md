@@ -34,6 +34,8 @@ You and I were inseparable. Just when I thought we were getting the hang of this
 
 We sat together on the couch and you were crying again, telling me you were hungry, and I was crying too, trying to get you to eat. I felt despair and failure and tense. so tense. And His presence swept over me. "Release it. Release your pride." and I did. Over and over and over again. 
 
-God settled your stomach and helped you eat and you grew. You got a small little roll on your wrist and we celebrated like we won the lottery. Your crying lessened and your sleep...well that still didn't change but had come to terms with that. 
+God settled your stomach and helped you eat and you grew. You got a small little roll on your wrist and we celebrated like we won the lottery. Your crying lessened and your sleep...well that still didn't change but we had come to terms with that. 
 
-And then, somehow, seemingly overnight you began crawling, and standing, and walking and laughing and kissing. 
+And then, somehow, seemingly overnight you began crawling and standing, laughing and kissing. You played and giggled and gave out the best smiles free of charge. You started taking steps and trying to walk. You clutch onto my finger and doubt yourself but this time I know. Release. Release him. And I watch you toddle across the room. 
+
+ It's been a year. A hard, beautiful, fun, sleepless, amazing year. And in 6 days,  my baby transitions to being a toddler. I feel that instinct to hold tightly. To keep you my baby. To withhold freedom and to try with all my might to freeze time. But, I hear that sweet, faithful voice yet again, **"Release Him."**
