@@ -22,4 +22,6 @@ Hope restored.
 
 50%. That sounds like a decent chance until it was my the probability of my babies life. I could feel the wave of fear rising and there it was again, ever faithful: "release, release your fear." 
 
-He sustained your life, the Creator did by the 
+He sustained your life, the Creator did by the very Word of His power. 
+
+The day finally came. What I thought was a tummy ache turned out to be contactions. 36 hours my body fought. 36 agonizing hours. Many times it felt my body and you were working against me. I cried with what energy I had left "I cant, I can't do it." The disappointment and shame hovered over me. Your Daddy knelt down near me and began to pray "Oh Father, would you strengthen Haley. Would you orchestrate her body to do what it needs to do. Would you guard Hudson's life and bring him safely to us. Would you comfort her in her pain" And there he was. Drawing near to me yet again. "Release. Release your Abilities. My power is made perfect in your weakness."
