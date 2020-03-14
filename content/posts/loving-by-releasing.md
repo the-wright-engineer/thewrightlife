@@ -29,3 +29,11 @@ The day finally came. What I thought was a tummy ache turned out to be contracti
 1:48 AM on March 22 the room filled with relief and joy "He's here, he's here!" your Daddy proclaimed. And there you were, on my chest, peering into my eyes like I'd never known a day without you. 
 
 They let us take you home (I'm still convinced they didn't make us pass a test before they entrusted us with your life) and we entered into our new life as a family of three. 
+
+You and I were inseparable. Just when I thought we were getting the hang of this keeping you alive thing you weren't gaining weight. And when I tried to feed you you cried and cried. You didn't sleep. ever. But we weren't mad because you would scrunch up your face and we knew you were hurting. One doctor turned into 5 and 1 appointment turned into twenty. There were tests and medicines and a lot of praying that God would grow your body and heal what was broken. 
+
+We sat together on the couch and you were crying again, telling me you were hungry, and I was crying too, trying to get you to eat. I felt despair and failure and tense. so tense. And His presence swept over me. "Release it. Release your pride." and I did. over and over and over again. 
+
+God settled your stomach and helped you eat and you grew. You got a small little roll on your wrist and we celebrated like we won the lottery. Your crying lessened and your sleep...well that still didn't change but had come to terms with that. 
+
+And then, somehow, seemingly overnight you began crawling, and standing, and walking and laughing and kissing. 
