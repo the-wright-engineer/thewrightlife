@@ -24,7 +24,7 @@ Hope restored.
 
 He sustained your life, the Creator did, by the very Word of His power. 
 
-The day finally came. What I thought was a tummy ache turned out to be contractions. 36 hours my body fought. 36 agonizing hours. Many times it felt my body and you were working against me. I cried with what energy I had left "I cant, I can't do it." The disappointment and shame hovered over me. Your Daddy knelt down near me and began to pray "Oh Father, would you strengthen Haley. Would you orchestrate her body to do what it needs to do. Would you guard Hudson's life and bring him safely to us. Would you comfort her in her pain" And there he was. Drawing near to me yet again. "Release it. Release your Abilities. My power is made perfect in your weakness."
+The day finally came. What I thought was a tummy ache turned out to be contractions. 36 hours my body fought. 36 agonizing hours. Many times it felt my body and you were working against me. I cried with what energy I had left "I cant, I can't do it." The disappointment and shame hovered over me. Your Daddy knelt down near me and began to pray "Oh Father, would you strengthen Haley. Would you orchestrate her body to do what it needs to do. Would you guard Hudson's life and bring him safely to us. Would you comfort her in her pain" And there He was. Drawing near to me yet again. "Release it. Release your Abilities. My power is made perfect in your weakness."
 
 1:48 AM on March 22 the room filled with relief and joy "He's here, he's here!" your Daddy proclaimed. And there you were, on my chest, peering into my eyes and it felt as if I'd never known a day without you. 
 
