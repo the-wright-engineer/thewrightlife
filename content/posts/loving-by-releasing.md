@@ -10,9 +10,9 @@ thumb_img_path = "/images/DSC06654-1.JPG"
 title = "Loving by Releasing"
 
 +++
-That little blue line slowly faded onto the pregnancy test. My plans and ideas came to a crashing halt and I heard that all familiar voice, the voice of God in the stillness..."release it. release your plans"
+That little blue line slowly faded onto the pregnancy test. My plans and ideas came to a crashing halt and I heard that all familiar voice, the voice of God in the stillness..."Release it. Release your plans"
 
-I received this new gift of a promised child and yearned to see your squishy face and tiny fingers. The weeks passed and you grew, slowly but surely, and then came the blood. I trembled and held my stomach where you were supposed to safely grow. I cried into your Daddy's arms and said "this isn't supposed to happen" and that tender voice came yet again, "release it. release your anxieties."
+I received this new gift of a promised child and yearned to see your squishy face and tiny fingers. The weeks passed and you grew, slowly but surely, and then came the blood. I trembled and held my stomach where you were supposed to safely grow. I cried into your Daddy's arms and said "this isn't supposed to happen" and that tender voice came yet again, "Release it. Release your anxieties."
 
 After a long night in the ER and an assumed miscarriage the ultrasound tech somberly gave us the news "sorry, but there's no baby in there". Your Daddy held my hand with just the right amount of tenderness and strength. We breathed in accepting this new reality we wouldn't get to meet you in this life and then just as quick as we thought it was over, she piped up quickly "Wait! Wait a minute...there it is. There's the heartbeat. Nice and strong" she said. 
 
