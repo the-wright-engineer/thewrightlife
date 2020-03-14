@@ -36,6 +36,6 @@ We sat together on the couch and you were crying again, telling me you were hung
 
 God settled your stomach and helped you eat and you grew. You got a small little roll on your wrist and we celebrated like we won the lottery. Your crying lessened and your sleep...well that still didn't change but we had come to terms with that. 
 
-And then, somehow, seemingly overnight you began crawling and standing, laughing and kissing. You played and giggled and gave out the best smiles free of charge. You started taking steps and trying to walk. You clutch onto my finger and doubt yourself but this time I know. Release. Release him. And I watch you toddle across the room. 
+And then, somehow, seemingly overnight you began crawling and walking, laughing and kissing. You play and giggle and give out the best smiles free of charge. 
 
- It's been a year. A hard, beautiful, fun, sleepless, amazing year. And in 6 days,  my baby transitions to being a toddler. I feel that instinct to hold tightly. To keep you my baby. To withhold freedom and to try with all my might to freeze time. But, I hear that sweet, faithful voice yet again, **"Release Him."**
+It's been a year. A hard, beautiful, fun, sleepless, amazing year. And in 6 days you, my baby, transition to being a toddler. I feel that instinct to hold tightly. To keep you my baby. To withhold freedom and to try with all my might to freeze time. But, I hear that sweet, faithful voice yet again, **"Release Him."**
