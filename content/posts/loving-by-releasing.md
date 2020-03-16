@@ -6,7 +6,7 @@ hide_header = false
 layout = "post"
 subtitle = "A Birthday Letter to my Baby Boy"
 thumb_img_path = "/images/DSC06654-1.JPG"
-title = "Loving by releasing"
+title = "Loving by Releasing"
 
 +++
 That little blue line slowly faded onto the pregnancy test. My plans and ideas came to a crashing halt and I heard that all familiar voice, the voice of God in the stillness..."Release it. Release your plans."
