@@ -45,6 +45,6 @@ Happy birthday baby boy.
 
 Love,
 
-    _your Mama._
+Your Mama.
 
 ![](/images/DSC06654-1.JPG)
