@@ -1,7 +1,7 @@
 +++
 content_img_path = ""
 date = 2020-03-14T04:00:00Z
-excerpt = "If we have learned anything this year its that to love you well we must release you to the one who loves you best."
+excerpt = "If we have learned anything this year it's that to love you well we must release you to the one who loves you best."
 hide_header = false
 layout = "post"
 subtitle = "A Birthday Letter to my Baby Boy"
