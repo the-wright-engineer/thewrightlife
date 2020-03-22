@@ -37,7 +37,7 @@ God settled your stomach and helped you eat and you grew. You got a small little
 
 And then, somehow, seemingly overnight you began crawling and walking, laughing and kissing. You play and giggle and give out the best smiles free of charge.
 
-It's been a year. A hard, beautiful, fun, sleepless, amazing year. And in 6 days you, my baby, transition to being a toddler. I feel that instinct to hold tightly. To keep you my baby. To withhold freedom and to try with all my might to freeze time. But, I hear that sweet, faithful voice yet again, **"Release Him."**
+It's been a year. A hard, beautiful, fun, sleepless, amazing year. And today you, my baby, transition to being a toddler. I feel that instinct to hold tightly. To keep you my baby. To withhold freedom and to try with all my might to freeze time. But, I hear that sweet, faithful voice yet again, **"Release Him."**
 
 If we have learned anything this year, it's that to love you well we must release you to the one who loves you best. And as you grow and we watch you stumble and fall, make mistakes and have big victories, we pray you learn to release it all to him as well. For he is faithful. He is near. He is trustworthy.
 
