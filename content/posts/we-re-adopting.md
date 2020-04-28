@@ -44,4 +44,4 @@ Love,
 
 Bradley, Haley, and Hudson
 
-\****stay tuned for our first fundraiser__**
+***stay tuned for our first fundraiser!__*
