@@ -17,7 +17,7 @@ _God decided in advance to **adopt** us into his own family by bringing us to hi
 
 **Why are you adopting?:**
 
-As Christians God has commanded us to care for orphans. We don't begrudgingly obey this command but we delight in caring for orphans because we were spiritual orphans! We were lost in our sin and shame and Jesus came after us! He not only washed us and made us clean in Gods sight but He invites us to be in His family. If God has done that for us why would we not do the same for a child in need of a home.
+As Christians God has commanded us to care for orphans. We don't begrudgingly obey this command but we delight in caring for orphans because we were spiritual orphans! We were lost in our sin and shame and Jesus came after us! He not only washed us and made us clean in God's sight but He invites us to be in His family. If God has done that for us why would we not do the same for a child in need of a home.
 
 **Why India?:** There are 20 million orphans in India (the country with the most orphans in the world). We want there to be one less. We love India. We love the people, we love the culture, and we REALLY love the food (give us all the samosas and chaat).
 
@@ -27,7 +27,7 @@ We are in a special needs program. This means that any child we bring home will 
 
 **How long will it take?:**
 
-Our agency has guessed around 1.5 years but it could be longer or shorter. We are currently in the homestudy process and once that is complete we will be eligible to be matched with a child waiting for a family!
+Our agency has guessed around 1.5 years but it could be longer or shorter. We are currently beginning the homestudy process(typically takes 3-4 months) and once that is complete we will send our file off to India for approval. When they approve us we will then be eligible to be matched with a child waiting for a family!
 
 **How much does it cost?:**
 
@@ -43,4 +43,4 @@ Love,
 
 Bradley, Haley, and Hudson
 
-***stay tuned for our first fundraiser!__*
+**_stay tuned for our first fundraiser!_**
