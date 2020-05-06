@@ -10,7 +10,7 @@ thumb_img_path = "/images/Haley Wright shirt6.jpg"
 title = "T-Shirt Fundraiser!!!"
 
 +++
-Fund the Nation
+We worked with Fund the Nations (a company that helps design great t-shirts people would actually want to buy to help individuals fundraise). We centered the t-shirt design around the verse "HIs grace is sufficient" (2 Corinth. 12:9) because it represents our prayer as we take this step of faith to adopt. While we don't know what the future holds we know our God is sufficient to supply in our weakness and we wholly lean on that. 
 
 #### **How you can help:**
 
