@@ -7,7 +7,6 @@ content_img_path: images/baby-feet.jpg
 excerpt: Yep. You heard that right! Baby Wright (or as we have affectionately named
   him/her Baby Squishy) is due to arrive in March.
 layout: post
-draft: true
 
 ---
 Yep. You heard that right! Baby Wright (or as we have affectionately named him/her Baby Squishy) is due to arrive in March. For the past 6 months we have been adjusting to life in Boston, figuring out public transportation, learning not to cry in traffic and adjusting our budget to survive in one of the most expensive cities in the country.
