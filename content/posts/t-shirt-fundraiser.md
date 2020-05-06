@@ -10,7 +10,7 @@ thumb_img_path = "/images/Haley Wright shirt6.jpg"
 title = "T-Shirt Fundraiser!!!"
 
 +++
-Insert Quick Summary Regarding what "Fund the Nations" is and how it helps us here.
+Fund the Nation
 
 #### **How you can help:**
 
@@ -42,9 +42,9 @@ _The Wright Family_
   * Adult 3XL
   * Adult 4XL
 
-> Shipping is an extra $4  _**(if not in Boston or Charlotte area)**_
+> Shipping is an extra $4  **_(if not in Boston or Charlotte area)_**
 
 #### Payment Options
 
-1. Venmo _@haley-wright-34963 (if it asks the last 4 digits of my phone number: 6296)_
-2. PayPal
+1. Venmo: _@haley-wright-34963 (if it asks the last 4 digits of my phone number: 6296)_
+2. PayPal:  paypal.me/wrightb4u
