@@ -1,6 +1,6 @@
 ---
 title: About Us
-subtitle: This is a short page about the Wright family!
+subtitle: ''
 img_path: "/images/IMG_6512.jpg"
 layout: page
 menu:
