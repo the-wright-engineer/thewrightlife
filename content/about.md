@@ -19,6 +19,6 @@ We are parents to the funniest one year old-Hudson.
 
 And we are Jesus followers who love a good cup of coffee, a long laugh, and some spicy food.
 
-Solo die gloria!
+Soli deo gloria!
 
 _'To God be the glory'_
