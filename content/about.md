@@ -2,19 +2,23 @@
 title: About Me
 subtitle: This is a short page about me and my work
 img_path: images/about.jpg
+layout: page
 menu:
   main:
     name: About
     weight: 2
-layout: page
+
 ---
+**Hello! We're the Wright Family.** 
 
-**John Doe** is a Senior Art Director from [Stockholm](https://en.wikipedia.org/wiki/Stockholm), Sweden. After graduating from The College of Visual Arts with a degree in Communication Design, he worked for three small graphic design shops where he honed his design style and sensibility.
+We're just an ordinary family who loves to serve an extraordinary God.
 
-His work has been recognized by Communication Arts, Print, How, ID, IdN, AIGA, Effie, Archive, Graphis, AdFed and Rockport. Graphic Design USA named him a person to watch in 2019.
+We are church planters in the best city, Boston (Go Red Sox!).
 
->The world always seems brighter when you’ve just made something that wasn’t there before. <cite>Neil Gaiman</cite>
+We are parents to the funniest one year old-Hudson.
 
-As a hobby, John Doe authors the most influential design blog in Sweden with over 100,000 page views a month. He lives in Stockholm with his beautiful wife and two boys.
+And we are Jesus followers who love a good cup of coffee, a long laugh, and some spicy food.
 
-*Thank You for reading!*
+Solo die gloria!
+
+_'To God be the glory'_
