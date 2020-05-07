@@ -22,8 +22,6 @@ Every shirt we sell is one step closer to bringing our kiddo home. Thank you in 
 
 _The Wright Family_
 
-![](/images/8500136260398777912.jpg)
-
 #### **Options and Pricing**:
 
 * Standard Crew Neck T-shirt: $20
@@ -61,3 +59,5 @@ Please include the following details:
 
    OR
 2. PayPal:  paypal.me/wrightb4u
+
+![](/images/8500136260398777912-1.jpg)
