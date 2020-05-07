@@ -46,9 +46,11 @@ _The Wright Family_
 
 #### Placing an Order:
 
-**Email tshirts@wrightlife.world** 
+**Email tshirts@wrightlife.world** with which t-shirt(s) you want (crewneck or V-neck), sizing preference, and shipping address (if applicable)
 
 #### Payment Options
 
 1. Venmo: _@haley-wright-34963 (if it asks the last 4 digits of my phone number: 6296)_
+
+   OR
 2. PayPal:  paypal.me/wrightb4u
