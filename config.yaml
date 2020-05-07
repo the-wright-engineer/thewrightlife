@@ -6,7 +6,7 @@ params:
   header:
     title: The Wright Life
     tagline: We are glad you are here!
-    logo_img: images/logo.png
+    logo_img: ''
     bg_img: images/header-bg.jpg
     has_nav: true
     has_social: true
