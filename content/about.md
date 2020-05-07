@@ -9,7 +9,7 @@ menu:
     weight: 2
 
 ---
-**Hello, we're the Wright Family!**
+**Hello, we are the Wright Family!**
 
 We are just an ordinary family who loves to serve an extraordinary God.
 
