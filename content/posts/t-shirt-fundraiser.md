@@ -1,5 +1,5 @@
 +++
-content_img_path = "/images/fundraising-fb.jpg"
+content_img_path = ""
 date = 2020-05-06T04:00:00Z
 excerpt = "Our goal is to sell 200 t-shirts to help fund these beginning expenses of our adoption.  We will submit the order in 2 weeks and your shirts should land at your front door around 2 weeks after that!"
 hide_header = false
@@ -9,6 +9,8 @@ thumb_img_path = "/images/fundraising-fb.jpg"
 title = "T-Shirt Fundraiser!!!"
 
 +++
+![](/images/fundraising-fb.jpg)
+
 We are working with Fund the Nations (a company that designs great T-shirts to help people fund raise missions/adoption). We centered the T-shirt design around the verse "His grace is sufficient" (2 Corinth. 12:9) because it represents our prayer as we take this step of faith to adopt. While we do not know what the future holds, we know our God is sufficient to supply in our weakness and we wholly lean on that.
 
 #### **How you can help:**
