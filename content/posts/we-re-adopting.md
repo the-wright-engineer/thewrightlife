@@ -9,7 +9,6 @@ thumb_img_path = "/images/preview_Globe_India1_Videvo.jpg"
 title = "...We're Adopting!"
 
 +++
-                                                    **We're Adopting!** 
 
 ![](/images/india flag.jpg)
 
