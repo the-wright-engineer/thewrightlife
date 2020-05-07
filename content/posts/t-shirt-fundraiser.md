@@ -5,7 +5,7 @@ excerpt = "Our goal is to sell 200 t-shirts to help fund these beginning expense
 hide_header = false
 layout = "post"
 subtitle = "To support our adoption."
-thumb_img_path = "/images/8500136260398777912.jpg"
+thumb_img_path = "/images/fundraising-fb.jpg"
 title = "T-Shirt Fundraiser!!!"
 
 +++
@@ -21,6 +21,8 @@ Our goal is to sell 200 t-shirts to help fund these beginning expenses of our ad
 Every shirt we sell is one step closer to bringing our kiddo home. Thank you in advance for helping us make sure there is one less orphan.
 
 _The Wright Family_
+
+![](/images/8500136260398777912.jpg)
 
 #### **Options and Pricing**:
 
