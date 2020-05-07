@@ -4,7 +4,7 @@ date = 2020-05-06T04:00:00Z
 excerpt = "Our goal is to sell 200 t-shirts to help fund these beginning expenses of our adoption.  We will submit the order in 2 weeks and your shirts should land at your front door around 2 weeks after that!"
 hide_header = false
 layout = "post"
-subtitle = "To support our adoption."
+subtitle = ""
 thumb_img_path = "/images/fundraising-fb.jpg"
 title = "T-Shirt Fundraiser!!!"
 
