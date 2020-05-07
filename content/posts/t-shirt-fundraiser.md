@@ -29,21 +29,22 @@ _The Wright Family_
 * Standard Crew Neck T-shirt: $20
 * V-Neck T-shirt: $22
 
-  ##### Available Sizes:
-  * Youth Small
-  * Youth Medium
-  * Youth Large
-  * Youth XL
-  * Adult XS
-  * Adult Small
-  * Adult Medium
-  * Adult Large
-  * Adult XL
-  * Adult 2XL
-  * Adult 3XL
-  * Adult 4XL
+##### Available Sizes:
 
-> Shipping is an extra $4  **_(if not in Boston or Charlotte area)_**
+* Youth Small
+* Youth Medium
+* Youth Large
+* Youth XL
+* Adult XS
+* Adult Small
+* Adult Medium
+* Adult Large
+* Adult XL
+* Adult 2XL
+* Adult 3XL
+* Adult 4XL
+
+Shipping is an extra $4 **_(if not in Boston or Charlotte area)_**
 
 #### Placing an Order:
 
