@@ -6,7 +6,7 @@ excerpt = "Our goal is to sell 200 t-shirts to help fund these beginning expense
 hide_header = false
 layout = "post"
 subtitle = "To support our adoption."
-thumb_img_path = "/images/Haley Wright shirt6.jpg"
+thumb_img_path = "/images/8500136260398777912.jpg"
 title = "T-Shirt Fundraiser!!!"
 
 +++
