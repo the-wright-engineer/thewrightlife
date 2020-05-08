@@ -60,5 +60,6 @@ Send an email to: [**tshirts@thewrightlife.world**](mailto:tshirts@thewrightlife
 
 * Venmo: _@haley-wright-34963 (if it asks the last 4 digits of my phone number: 6296)_
 * PayPal:  paypal.me/wrightb4u
+* Check: _Mail to Haley Wright - 77 Turner Street Brighton, MA 02135_
 
 ![](/images/8500136260398777912-1.jpg "T-Shirt Designs")
