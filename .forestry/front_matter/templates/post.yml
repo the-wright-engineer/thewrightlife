@@ -43,6 +43,7 @@ fields:
   config:
     required: true
 pages:
+- content/posts/fundraiser-complete.md
 - content/posts/loving-by-releasing.md
 - content/posts/t-shirt-fundraiser.md
 - content/posts/we-re-adopting.md
