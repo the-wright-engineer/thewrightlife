@@ -1,11 +1,11 @@
 +++
-content_img_path = ""
+content_img_path = "/images/india-process-homestudy.PNG"
 date = 2020-06-21T04:00:00Z
 excerpt = ""
 hide_header = false
 layout = "post"
 subtitle = ""
-thumb_img_path = "/images/india-process-homestudy.PNG"
+thumb_img_path = "/images/jon-tyson-vd6ufu8qyui-unsplash.jpg"
 title = "Fundraiser Complete!"
 
 +++
