@@ -1,5 +1,5 @@
 +++
-content_img_path = "/images/india-process-homestudy.PNG"
+content_img_path = ""
 date = 2020-06-21T04:00:00Z
 excerpt = ""
 hide_header = false
