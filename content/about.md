@@ -1,7 +1,7 @@
 ---
 title: About Us
 subtitle: ''
-img_path: "/images/IMG_6512.jpg"
+img_path: "/images/20201030_151119-0-1.jpg"
 layout: page
 menu:
   main:
